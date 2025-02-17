@@ -3,7 +3,7 @@
 
 - 🧠 I’m currently studying in **Pinecone Academy**
 - ⚜️ I’m currently learning **a Software Developer**
-- 📫 How to reach me: **mistbadless@gmail.com**
+- 📫 How to reach me: **torboldaltanhuyga@gmail.com**
 
 <p align="left"></p>
 
